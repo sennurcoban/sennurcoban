@@ -42,4 +42,4 @@
 ---
 
 📫 **Let’s connect**  
-[LinkedIn](https://www.linkedin.com/in/sennur-coban/) | [Portfolio Website - Coming Soon] | [Email - Optional]
+[LinkedIn](https://www.linkedin.com/in/sennur-coban/) | [Portfolio Website - Coming Soon] | [Email - sennurrcobann@gmail.com]
